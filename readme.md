@@ -6,6 +6,9 @@ Subscribe me on YouTube #CyPeNet-
 Like Me On Facebook #CyPenet- https://www.facebook.com/cypenet/
 
 Follow me On twitter #CyPeNet- https://twitter.com/CyPeNet
+
+
+My YouTube channel was deleted by YouTube Team. You know how I'm feeling right now. So I am going to make another channel. I hope this time I can do better. I am going to reupload some videos from the previous YT channel. Stay Tuned
                                                                                                                                                                                                                                                                                                         
 
                                                                                                                                                       
