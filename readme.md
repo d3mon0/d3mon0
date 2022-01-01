@@ -4,7 +4,7 @@ Hi There, I'm the owner and the founder of<h1>***CyPeNet***</h1>
 <a href="https://twitter.com/cypenet" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="cypenet" height="30" width="40" /></a>
 <a href="https://fb.com/cypenet" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="cypenet" height="30" width="40" /></a>
 <a href="https://instagram.com/cypenet" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="cypenet" height="30" width="40" /></a>
-<a href="https://www.youtube.com/c/cypenet" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="cypenet" height="30" width="40" /></a>
+<a href="https://www.youtube.com/channel/UCmLmFlJuFthgcFz0yJkpS_g/videos" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="cypenet" height="30" width="40" /></a>
 </p>
 
 
